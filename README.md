@@ -1,1 +1,1 @@
-Lionel Messi holds the record for the most FIFA Ballon d'Or awards, winning the prestigious accolade six times as of 2019.
+Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
