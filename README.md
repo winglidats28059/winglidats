@@ -1,1 +1,1 @@
-Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
+The "Miracle of Istanbul" in the 2005 UEFA Champions League final saw Liverpool come back from a 3-0 halftime deficit to defeat AC Milan on penalties.
