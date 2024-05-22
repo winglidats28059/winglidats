@@ -1,1 +1,1 @@
-The "Miracle of Istanbul" in the 2005 UEFA Champions League final saw Liverpool come back from a 3-0 halftime deficit to defeat AC Milan on penalties.
+La Masia, the youth academy of FC Barcelona, has produced numerous world-class players, including Lionel Messi, Andres Iniesta, and Xavi Hernandez.
