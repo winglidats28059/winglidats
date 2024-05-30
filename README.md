@@ -1,1 +1,1 @@
-Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
+Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
