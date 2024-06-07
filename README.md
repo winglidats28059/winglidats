@@ -1,1 +1,1 @@
-Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
+Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
