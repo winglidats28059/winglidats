@@ -1,1 +1,1 @@
-Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
+Soccer has become a global phenomenon, with leagues and competitions in countries across six continents, showcasing the sport's universal appeal.
