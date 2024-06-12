@@ -1,1 +1,1 @@
-The 1950 World Cup final between Uruguay and Brazil at the Maracanã Stadium in Rio de Janeiro remains the highest-attended soccer match in history, with over 173,000 spectators.
+Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
