@@ -1,1 +1,1 @@
-The "Icelandic thunderclap," a rhythmic clapping chant performed by Iceland fans, became a symbol of their team's success and underdog spirit in international competitions.
+Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
