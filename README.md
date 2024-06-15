@@ -1,1 +1,1 @@
-Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
+Soccer has become a global phenomenon, with leagues and competitions in countries across six continents, showcasing the sport's universal appeal.
