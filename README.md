@@ -1,1 +1,1 @@
-Zinedine Zidane's volleyed goal for Real Madrid against Bayer Leverkusen in the 2002 UEFA Champions League final is often cited as one of the greatest goals in Champions League history.
+Lionel Messi and Cristiano Ronaldo are considered two of the greatest players of their generation, each winning multiple Ballon d'Or awards.
