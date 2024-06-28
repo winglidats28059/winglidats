@@ -1,1 +1,1 @@
-Alfredo Di Stefano, known as the "Blond Arrow," was a legendary figure for Real Madrid, playing a key role in their early European successes.
+Pelé remains the youngest player to ever win a FIFA World Cup, achieving the feat at the age of 17 years and 249 days in 1958.
