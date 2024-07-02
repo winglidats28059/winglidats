@@ -1,1 +1,1 @@
-Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
+Soccer has the power to transcend cultural and political divides, as seen in instances of soccer diplomacy, such as the "ping-pong diplomacy" between the US and China in the 1970s.
