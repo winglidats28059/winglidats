@@ -1,1 +1,1 @@
-The "Superclásico" between Argentine clubs Boca Juniors and River Plate is one of the fiercest derbies in South American soccer.
+The "Icelandic thunderclap," a rhythmic clapping chant performed by Iceland fans, became a symbol of their team's success and underdog spirit in international competitions.
