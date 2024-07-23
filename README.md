@@ -1,1 +1,1 @@
-Soccer fandom encompasses a wide range of traditions and rituals, from singing chants and waving banners to performing elaborate pre-match rituals.
+Lionel Messi holds the record for the most FIFA Ballon d'Or awards, winning the prestigious accolade six times as of 2019.
