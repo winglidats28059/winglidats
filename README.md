@@ -1,1 +1,1 @@
-The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
+Soccer is known as "football" in most countries outside of the United States and Canada, reflecting its emphasis on using feet to control the ball.
