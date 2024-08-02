@@ -1,1 +1,1 @@
-Soccer is known as "football" in most countries outside of the United States and Canada, reflecting its emphasis on using feet to control the ball.
+Lionel Messi and Cristiano Ronaldo are considered two of the greatest players of their generation, each winning multiple Ballon d'Or awards.
